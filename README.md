@@ -10,3 +10,6 @@ Ahemdabad
 Basically I am from Bhavnagar, completed my B.Trch from C U Shah University, Surendrangar, and Completed M.Tech From Department of Computer Science, Gujarat University, Ahemdabad. 
 
 Hello All 
+
+
+Hi Zarana
